@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 😄 😃 😀 was  Pronouns: She/Her
 - ⚡ Fun fact 1: I speak French too
 - ⚡ Fun fact 2: pazham pori (stuffed banana roast) 🍌 : hey you are my panchasara
-- ⚡ Fun fact 2: chai (Tea) ☕️  : hey you invoke nostalgia
+- ⚡ Fun fact 3: chai (Tea) ☕️  : hey you invoke nostalgia
 
