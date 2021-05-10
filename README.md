@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about python3
 - 📫 How to reach me: https://www.linkedin.com/in/lijaalex123/
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I speak French 
+- ⚡ Fun fact: I speak French too
 
