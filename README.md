@@ -11,6 +11,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: https://www.linkedin.com/in/lijaalex123/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact 1: I speak French un peu
-- ⚡ Fun fact 2: pazham pori (stuffed banana roast) 🍌 : hey you are my panchasara
-- ⚡ Fun fact 3: chai (Tea) ☕️  : hey you invoke nostalgia
-
