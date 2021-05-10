@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 -->
 
 - 🔭 I’m currently working on VRK
-- 💬 Ask me about python3
+- 💬 Ask me about python3, machine learning
 - 📫 How to reach me: https://www.linkedin.com/in/lijaalex123/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact 1: I speak French un peu
