@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 -->
 
-- 🔭 I’m currently working on VR Kerala
+- 🔭 I’m currently working on VRK
 - 💬 Ask me about python3
 - 📫 How to reach me: https://www.linkedin.com/in/lijaalex123/
 - 😄 Pronouns: She/Her
