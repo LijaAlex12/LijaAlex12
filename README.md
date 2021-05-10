@@ -7,9 +7,6 @@ Here are some ideas to get you started:
 -->
 
 - 🔭 I’m currently working on VR Kerala
-- 🌱 I’m currently learning React
-
-- 🤔 I’m looking for help with lex bot and flutter integration
 - 💬 Ask me about python3
 - 📫 How to reach me: https://www.linkedin.com/in/lijaalex123/
 - 😄 Pronouns: She/Her
