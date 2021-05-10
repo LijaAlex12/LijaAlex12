@@ -11,3 +11,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: https://www.linkedin.com/in/lijaalex123/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact 1: I speak French un peu
+- motivation - love what you do, and if you don't love it, its time to move on things which you love to do, and show the never ending passion to learn every moment. 
