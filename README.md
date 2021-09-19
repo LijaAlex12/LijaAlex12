@@ -12,3 +12,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact 1: I speak French un peu
 - "Everybody is a genius. But if you judge a fish by its ability to climb a tree, it will live its whole life believing that it is stupid."- Albert Einstein
+- website: https://lija-alex.netlify.app/
